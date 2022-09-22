@@ -1,1 +1,7 @@
-# compare_and_contrast
+While writing a compare and contrast essay, you should take notes from other successful samples to inspire your own ideas. Ensure your ideas are unique and interesting so that your paper will stand out from the crowd. You may want to talk to [paper helper](https://paperhelp.nyc/) or ask parents to brainstorm ideas for interesting compare and contrast essay topics. Be sure to follow the guidelines of your school, and remember to address your audience's interests while keeping your writing practical.
+
+Sports are another great topic to write about. Most people find sports interesting. If you can compare two sports that are related, you'll be able to capture the reader's attention. For example, football and basketball are two very different sports, and a comparison between these two sports can provide the reader with useful information.
+
+A persuasive essay should start with a clear thesis statement. A strong thesis statement will inform the audience about the topic and your position on a particular issue. It should also set the stage for the rest of the essay. In addition, it should be supported with facts and evidence to convince the reader.
+
+The body paragraphs should be grouped according to their topic. Each topic sentence needs at least four sentences of material. It is also advisable to use grouping notes to provide supporting details for each point. In addition, the first body paragraph should state the most important point, while the second paragraph should present the second best point. The final paragraph should end with a call-to-action.
